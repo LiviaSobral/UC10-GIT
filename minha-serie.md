@@ -1,7 +1,7 @@
 # Tranformers G1
 ## Introdução
 A serie se trata de um cartoon animado feito em 1984, possui animação de ponta e uma trama muito engajante com uma historia bem aprofundada, as vezes tão profunda que pode fazer voce chorar, alem de NENHUM furo no roteiro. 
-Nela vemos um mundo de ficção cientifica onde robos gigantes alienigenas que se transformam em vehiculos lutam entre si em batalhas futeis porem extremamente comicas.
+Nela vemos um mundo de ficção cientifica onde robos gigantes alienigenas que se transformam em veiculos lutam entre si em batalhas futeis porem extremamente comicas.
 
 ---
 ## Personagens
