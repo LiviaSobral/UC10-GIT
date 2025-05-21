@@ -31,7 +31,7 @@ Nela vemos um mundo de ficção cientifica onde robos gigantes alienigenas que s
 | Tempo | Episodio | Temporada | Motivo |
 |-------|----------|-----------|--------|
 | 0:00  | Todos    | 1         | A abertura é braba|
-| 16:09 | 6        | 1         | A fala do cadeirante|
+| 16:09 | 6        | 1         | A fala do cadeirante kkkkkkkk|
 |6:34   | 8        | 1         | Megatron tem um clone do Optimus Prime e isso é literalmente NUNCA explicado o pq... E ELE FAZ OUTRO DEPOIS|
 |18:32  | 13       | 1         | *Throws Cube at Starscream* "You disgust me"|
 |11:07  | 14       | 1         | Soundwave faz carrinho em Ravage|
